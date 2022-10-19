@@ -4,6 +4,6 @@
 
 Achei interessante e lúdica.
 
-Agradeço o empenho em preparar isso para a gente. Realment aprendi demais.
+Agradeço o empenho em preparar isso para a gente. Realmente aprendi demais.
 
 Um abraço!
