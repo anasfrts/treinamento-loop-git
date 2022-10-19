@@ -1,2 +1,3 @@
-Jogo preferido:
-Cor preferida:
+Jogo preferido: Metroid
+Cor preferida: Verde
+Looper favorito: Eu, óbvio
